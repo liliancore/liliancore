@@ -1,1 +1,1 @@
-intellectual beast
+Carleton College '26
